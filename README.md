@@ -1,1 +1,1 @@
-# Repeated-text-LCS-data-in-Indonesian-and-Arabic-Al-Qur-an-789-verses-
+
